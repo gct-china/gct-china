@@ -1,4 +1,19 @@
 # Wang Qi, I fuck your mother. You son of bitch!!!!!!
 
 Wang Qi, you son of bitch, you bastard!!!
-Wang Qi, you son of bitch, you bastard!!!
+
+---
+
+能搜到这里的，应该是苏州guan骋信息技术有限公司的吧
+
+你们研发部有个傻逼，该死的傻逼，TA的名字叫王琪！！！
+
+她的特征是：戴眼镜 160的身高 有点胖 30多岁 白头发
+
+王琪，我操你妈呢个b，你个骚婊子，真尼玛贱逼！
+
+你嘴怎么这么欠抽呢？我操你码呢个b的，狗娘养的，You bastard个私生子。
+
+成天的BB这个 BB那个，你个畜生 也配BB？天天像个女人样 埋怨，和女人斗狠，真尼玛的下贱！！！
+
+你个孙子 你妈怎么生了你这个婊子？不好好管教？话真尼玛b的多，你这个嘴真该烂，CNMB的！！！
